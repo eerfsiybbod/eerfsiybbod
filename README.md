@@ -1,3 +1,3 @@
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**What you do speaks so loudly that I cannot hear what you say.**_
 
-Ray Kroc
+Ralph Waldo Emerson
