@@ -1,3 +1,3 @@
-_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
+_**Life is 10% what happens to us and 90% how we react to it.**_
 
-Jean Shinoda Bolen
+Dennis P. Kimbro
