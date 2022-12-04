@@ -1,3 +1,3 @@
-_**Life is 10% what happens to us and 90% how we react to it.**_
+_**You will never win if you never begin.**_
 
-Dennis P. Kimbro
+Helen Rowland
