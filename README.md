@@ -1,3 +1,3 @@
-_**You will never win if you never begin.**_
+_**Remember that you are very special, no one can play your role better than you.**_
 
-Helen Rowland
+Damayanti Patra
